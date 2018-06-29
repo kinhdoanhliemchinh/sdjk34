@@ -1,0 +1,2 @@
+Lúc đầu, người bệnh sẽ thường xuyên cảm thấy khó chịu, đau nhẹ ở khớp gối. Những cơn đau chỉ xuất hiện mơ hồ và thoáng qua, chưa gây tổn thương tới khớp nên nhiều người không để ý.
+https://chuabenhkhoptambinh.wordpress.com/2018/06/29/khop-goi-la-mot-trong-nhung-khop-chiu-luc-cua-co-the-voi-vai-tro-la-nang-do-toan-bo-suc-nang-cua-co-the-va-giup-chung-ta-di-chuyen-thuc-hien-cac-dong-tac-nhu-cui-ngua-xoay-nen-khop-goi-ra-5/
